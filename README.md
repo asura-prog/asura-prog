@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @asura-prog
 - 👀 I’m interested in learning 
-- 🌱 I’m currently learning bca
+- 🌱 I’m currently learning cybersecurity ( i droped bca ) 
 - 💞️ I’m looking to collaborate on learning cybersecurity 
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
